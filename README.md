@@ -1,10 +1,13 @@
 ![din my beloved](https://github.com/tboydin/meowmeow/assets/142259837/971b94ea-1d3f-4f38-b6c0-688d6f95cf08)
 
-----> pony town users: please do not cover me! makes me uncomfortable >_< 
+PONY TOWN USERS :
 
----> taking inspo from my skins is fine, please just whisp me for permission first :)
+---> please do not cover me! makes me uncomfortable >_< 
 
---> iswsifobaaigwtsswam.carrd.co
+--> taking inspo from my skins is fine, please just whisp me for permission first :)
+
+-> DNI: basic dni, south park fans (current friends are safe), roleplayers (just don't try to make me rp with you)
+
 
 thx for reading ^_^
 
