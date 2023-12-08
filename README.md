@@ -6,7 +6,7 @@ PONY TOWN USERS :
 <br><a href="https://tboydin.123guestbook.com/">![guestbook](https://64.media.tumblr.com/1eeca03781c191eb40cc2e253895365b/3c57f20ea78610c0-b4/s250x400/c6037a756f0b0a7795c996fc966c050fead76233.gifv)</a>
 <br>---> DNI: <a href="dnicriteria.carrd.co">basic dni</a>, -18 on 18+ server, roleplayers (just dont try to rp w me), sp, hb/hh, killing stalking fans, trolls/if ur annoying/weird you'll get hid idgaf lol, if u come near me with an intentionally offensive skin i'll perma block u
 
---> please do not cover me! makes me uncomfortable >_< 
+--> please do not cover me! makes me uncomfortable ![no](https://i.imgur.com/kmjDHEn.gif)
 
 -> taking inspo from my skins is fine, please just whisp me for permission first :)
 
