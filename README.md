@@ -11,6 +11,6 @@
 
 
 thx for reading ^_^
-![banner](https://pixelsafari.neocities.org/dividers/crabs.gif) 
+<br>![banner](https://pixelsafari.neocities.org/dividers/crabs.gif) 
 
 <a href="https://www.youtube.com/watch?v=N-7gbWKbXbQ">![were normal1!!!](https://64.media.tumblr.com/216e10672c517d2cd487843feceb46f3/c7df493daeed0362-31/s640x960/7775171faddaed2d09c4511db4b5e0496ad71f56.jpg)</a>
