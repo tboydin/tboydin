@@ -1,4 +1,5 @@
-<center> ![banner](https://pixelsafari.neocities.org/dividers/more/cat4.png) 
+<center> 
+![banner](https://pixelsafari.neocities.org/dividers/more/cat4.png) 
 
 <br>![orange](https://pixelsafari.neocities.org/favicon/nature/star/moon16.gif) = offtab, just whisper me if i don't reply
 <br>![red](https://64.media.tumblr.com/5bb4b514631392d52b40b985b01cd343/daae8d5ea63d3327-97/s75x75_c1/ddf016fabba8424d54f62338ffc7d2f420992da1.gifv) = AFK, same as above
