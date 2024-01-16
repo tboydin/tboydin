@@ -7,7 +7,9 @@
 
 --> please do not cover me! makes me uncomfortable ![no](https://i.imgur.com/kmjDHEn.gif)
 
----> taking inspo from my skins is fine, please just whisp me for permission first :)
+---> feel free to sit with me/my friends if u share fandoms :3 
+
+----> taking inspo from my skins is fine, please just whisp me for permission first :)
 
 
 thx for reading ^_^
