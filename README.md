@@ -4,7 +4,7 @@
 <br>
 ![banner](https://pixelsafari.neocities.org/dividers/more/cat4.png) 
 <br>![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) DNI: <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal, minors on 18+ server, roleplayers (just dont try to rp w me), rcta/ecta, south park, hb/hh, killing stalking fans,
-<br>TLDR if ur annoying/weird or if u come near me with an intentionally offensive skin i'll perma block u idgaf i have zero patience for fuckery lmao
+<br>TLDR if ur annoying/weird or if u come near me with an intentionally offensive skin i will PERMANENTLY BLOCK U idgaf i have zero patience for fuckery lmao
 
 ![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) please do not cover me! makes me uncomfortable ![no](https://i.imgur.com/kmjDHEn.gif)
 
