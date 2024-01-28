@@ -3,7 +3,7 @@
 <br><a href="https://tboydin.123guestbook.com/">![guestbook](https://64.media.tumblr.com/1eeca03781c191eb40cc2e253895365b/3c57f20ea78610c0-b4/s250x400/c6037a756f0b0a7795c996fc966c050fead76233.gifv)</a> <a href="https://tboydin.neocities.org/">![nickdance](https://64.media.tumblr.com/c1278b3696e1d5dc70f101afd235992f/19a8f7934d4ff7d4-9b/s100x200/8adb690007613ddecc6fa9971850890c9fa3537f.gifv)</a> ![cat](https://64.media.tumblr.com/6e8b1d175db52a0cf208287157c92c28/1b5672df535286b8-cd/s75x75_c1/50914a1b408463a0a449d2c0b52f74cfb0d62228.gifv) check out my website for my silly graphic hoarde  ![rolling](https://enchantments.carrd.co/assets/images/gallery19/b73cd2b3.gif?v=c1e97d5d)
 <br>
 ![banner](https://pixelsafari.neocities.org/dividers/more/cat4.png) 
-<br>![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) DNI: <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal, minors on 18+ server, roleplayers (just dont try to rp w me), rcta/ecta, south park, hb/hh, killing stalking fans,
+<br>![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) DNI: <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal, minors on 18+ server, anti dni/dnt (ur not funny ur just being an asshole...), roleplayers (just dont try to rp w me), rcta/ecta, south park, hb/hh, killing stalking fans,
 <br>TLDR if ur annoying/weird or if u come near me with an intentionally offensive skin i will PERMANENTLY BLOCK U idgaf i have zero patience for fuckery lmao
 
 ![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) please do not cover me! makes me uncomfortable ![no](https://i.imgur.com/kmjDHEn.gif)
