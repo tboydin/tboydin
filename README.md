@@ -10,7 +10,7 @@
 
 ![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) feel free to sit with me/my friends if we share fandoms, heads up tho i'm offtab most of the time so sorry if i ignore u lol ![pika](https://64.media.tumblr.com/072f44525adec799aedfd20091215563/0d58f11cb289c71f-73/s75x75_c1/8e339e3ab0e35c1aaa3f6d67001eebf7de9ed2a4.gifv) 
 
-![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) taking inspo from my skins is fine, please just whisp me for permission first ![frog](https://pixelsafari.neocities.org/favicon/animals/amphibian/frog.gif)
+![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) taking inspo from my skins is fine, please just whisp me for permission first, also tone tags are appreciated ![frog](https://pixelsafari.neocities.org/favicon/animals/amphibian/frog.gif)
 
 
 ![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3)thx for reading ![spin](https://gifcity.carrd.co/assets/images/gallery97/0b9023af.gif?v=ef10e8f3)
