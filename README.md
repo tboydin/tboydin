@@ -1,5 +1,5 @@
 
-<a href="https://www.youtube.com/watch?v=CgofJGvznGs">![sokka](https://64.media.tumblr.com/b7a71a872dd78d644d0a84d9ec5bb2ce/9771f4935d0f170f-0c/s540x810/00f89a1e3460f50ce6944d54f87e5f7df0010ac2.gifv)</a>
+<a href="https://www.youtube.com/watch?v=CgofJGvznGs">![cat](https://pixelsafari.neocities.org/dividers/more/cat4.png)</a>
 <br>![orange](https://pixelsafari.neocities.org/favicon/nature/star/moon16.gif) = offtab, just whisper me if i don't reply
 <br>![red](https://64.media.tumblr.com/5bb4b514631392d52b40b985b01cd343/daae8d5ea63d3327-97/s75x75_c1/ddf016fabba8424d54f62338ffc7d2f420992da1.gifv) = AFK, same as above
 <br> <a href="https://tboydin.neocities.org/">![nickdance](https://64.media.tumblr.com/c1278b3696e1d5dc70f101afd235992f/19a8f7934d4ff7d4-9b/s100x200/8adb690007613ddecc6fa9971850890c9fa3537f.gifv)</a> ![cat](https://64.media.tumblr.com/6e8b1d175db52a0cf208287157c92c28/1b5672df535286b8-cd/s75x75_c1/50914a1b408463a0a449d2c0b52f74cfb0d62228.gifv) check out my website for my silly graphic hoarde  ![rolling](https://enchantments.carrd.co/assets/images/gallery19/b73cd2b3.gif?v=c1e97d5d) <a href="https://tboydin.123guestbook.com/">![guestbook](https://64.media.tumblr.com/1eeca03781c191eb40cc2e253895365b/3c57f20ea78610c0-b4/s250x400/c6037a756f0b0a7795c996fc966c050fead76233.gifv)</a> 
