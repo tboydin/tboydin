@@ -7,9 +7,9 @@
 <br>![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) DNI: <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal, MINORS on 18+ server, anti dni/dnt (is it so hard to respect ppl ?), roleplayers (just dont try to make me rp with u lol), rcta/ecta, south park, hb/hh (friends r fine), killing stalking fans,
 <br>TLDR if ur annoying/weird or if u come near me with an intentionally offensive skin i will PERMANENTLY BLOCK U idgaf i have zero patience for fuckery lmao
 
-![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) please do not cover me! makes me uncomfortable but feel free to sit with me/my friends if we share fandoms, heads up tho i'm offtab most of the time so sorry if i ignore u lol,, skins i sit/cuddle with does not mean i ship those characters ![pika](https://64.media.tumblr.com/072f44525adec799aedfd20091215563/0d58f11cb289c71f-73/s75x75_c1/8e339e3ab0e35c1aaa3f6d67001eebf7de9ed2a4.gifv) 
+![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) please do not cover me! makes me uncomfortable but feel free to sit with me/my friends if we share fandoms, heads up tho i'm offtab most of the time so sorry if i ignore u lol,, skins i sit/cuddle with does not mean i ship those characters ![inoue](https://64.media.tumblr.com/bdb63dea9f32524251f91a103b4dd860/64fd06e27ea23fa1-49/s75x75_c1/4c9d149ef97b030a4356b910543268319de5102a.gifv)
 
-![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) taking inspo from my skins is fine, please just whisp me for permission first :P tone tags are appreciated and i dont accept random friend requests ![frog](https://pixelsafari.neocities.org/favicon/animals/amphibian/frog.gif)
+![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3) taking inspo from my skins is fine, please just whisp me for permission first :P tone tags are appreciated and i dont accept random friend requests ![inoue2](https://64.media.tumblr.com/04c3875b44db3a4292e09be7700ea8ac/64fd06e27ea23fa1-46/s75x75_c1/7e30f5f2fd95cc5a1cb17aba29780031df77893d.gifv)
 
 
 ![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3)thx for reading ![spin](https://gifcity.carrd.co/assets/images/gallery97/0b9023af.gif?v=ef10e8f3)
