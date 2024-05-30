@@ -13,4 +13,4 @@
 
 
 ![star](https://gifcity.carrd.co/assets/images/gallery06/c1e3da3a.gif?v=ef10e8f3)thx for reading ![spin](https://gifcity.carrd.co/assets/images/gallery97/0b9023af.gif?v=ef10e8f3)
-<br> <a href="(https://youtu.be/QXmpKI7GtQU?si=u6ME40z76vB043Q8)"/>![the curse](https://64.media.tumblr.com/a45f54486f55cfcf7ed9a81d1f392624/bf7ac84fc7adc8b2-9a/s500x750/c061b7e63aa98d4995ef52428a7b11aeb9adb9cf.pnj)</a>
+<br> <a href="https://youtu.be/QXmpKI7GtQU?si=-aHQNLlzaUxnRnx6"/>![the curse](https://64.media.tumblr.com/a45f54486f55cfcf7ed9a81d1f392624/bf7ac84fc7adc8b2-9a/s500x750/c061b7e63aa98d4995ef52428a7b11aeb9adb9cf.pnj)</a>
