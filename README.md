@@ -1,6 +1,6 @@
 
 <div align="center">
-  <a href="https://youtu.be/CgofJGvznGs?si=XMcLML5Zg5oDJ8rC"/><img src="https://64.media.tumblr.com/a3ab638ba41c9c2b29cccf11265ed99a/cfa7dfd182b091b1-25/s1280x1920/18d4a40cb9f06766b9ffcd137eb2856ebb024452.png" alt="rainbow"  /></a>
+  <a href="https://youtu.be/CgofJGvznGs?si=XMcLML5Zg5oDJ8rC"/><img src="https://64.media.tumblr.com/34b9b438b038668b5fde564e532a846e/tumblr_n8yx8tgtnI1rx94iyo1_1280.pnj" alt="mugiwara nakama"  /></a>
 
 <br>![orange](https://pixelsafari.neocities.org/favicon/nature/star/moon16.gif) = offtab, just whisper me if i don't reply
 <br>![red](https://64.media.tumblr.com/5bb4b514631392d52b40b985b01cd343/daae8d5ea63d3327-97/s75x75_c1/ddf016fabba8424d54f62338ffc7d2f420992da1.gifv) = AFK same as above, sometimes dni/dniuf
