@@ -13,7 +13,7 @@
 ![inoue2](https://64.media.tumblr.com/04c3875b44db3a4292e09be7700ea8ac/64fd06e27ea23fa1-46/s75x75_c1/7e30f5f2fd95cc5a1cb17aba29780031df77893d.gifv) taking inspo from my skins is fine, please just whisp me for permission first :P tone tags are appreciated and i dont accept random friend requests 
 
 ![spin](https://gifcity.carrd.co/assets/images/gallery97/0b9023af.gif?v=ef10e8f3)thx for reading 
-<br> <a href="https://tboydin.neocities.org/graphics">![wyzard](https://www.gifs-paradise.com/animations/animated-gifs-wizards-01.gif)</a> <- click the wizard to see my graphic hoarde <a href="https://tboydin.123guestbook.com/">![guestbook](https://64.media.tumblr.com/1eeca03781c191eb40cc2e253895365b/3c57f20ea78610c0-b4/s250x400/c6037a756f0b0a7795c996fc966c050fead76233.gifv)</a> 
+<br> <a href="https://tboydin.neocities.org/graphics">![wyzard](https://www.gifs-paradise.com/animations/animated-gifs-wizards-01.gif)</a> <- click here to see my graphic hoarde or click here to see my strawpage -> <a href="https://tboydin.straw.page/">![strawpage](https://liedown1.neocities.org/stamps/trans-shark1.gif)</a>
 <br>
 
 
