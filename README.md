@@ -9,7 +9,7 @@
 
 ![inoue](https://64.media.tumblr.com/bdb63dea9f32524251f91a103b4dd860/64fd06e27ea23fa1-49/s75x75_c1/4c9d149ef97b030a4356b910543268319de5102a.gifv) please do not cover me (friends r fine)! makes me uncomfortable but feel free to sit with me/my friends if we share fandoms, heads up tho i'm offtab most of the time so sorry if i ignore u lol,, skins i sit/cuddle with does not mean i ship those characters 
 
-![inoue2](https://64.media.tumblr.com/04c3875b44db3a4292e09be7700ea8ac/64fd06e27ea23fa1-46/s75x75_c1/7e30f5f2fd95cc5a1cb17aba29780031df77893d.gifv) taking inspo from my skins is fine, please just whisp me for permission first :P tone tags are appreciated and i dont accept random friend requests 
+![inoue2](https://64.media.tumblr.com/04c3875b44db3a4292e09be7700ea8ac/64fd06e27ea23fa1-46/s75x75_c1/7e30f5f2fd95cc5a1cb17aba29780031df77893d.gifv) taking inspo from my skins is whatever :P tone tags are appreciated and i dont accept random friend requests
 
 ![spin](https://gifcity.carrd.co/assets/images/gallery97/0b9023af.gif?v=ef10e8f3)thx for reading 
 <br> <a href="https://tboydin.neocities.org/graphics">![wyzard](https://www.gifs-paradise.com/animations/animated-gifs-wizards-01.gif)</a> <- click here to see my graphic hoarde or click here to see my strawpage -> <a href="https://tboydin.straw.page/">![strawpage](https://liedown1.neocities.org/stamps/trans-shark1.gif)</a>
