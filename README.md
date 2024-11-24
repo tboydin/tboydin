@@ -1,6 +1,7 @@
 
 <div align="center">
-  <a href="https://youtu.be/CgofJGvznGs?si=XMcLML5Zg5oDJ8rC"/><img src="https://64.media.tumblr.com/34b9b438b038668b5fde564e532a846e/tumblr_n8yx8tgtnI1rx94iyo1_1280.pnj" alt="mugiwara nakama"  /></a>
+  <img src="https://64.media.tumblr.com/796e1359c4611653b646248e93556831/f1dbe56fe71069c0-80/s250x400/6c5f7ffb46dc05cadf9d61e398cb0d714dab88ee.gifv"
+/>
 
 <br>🌙 = offtab, just whisper me if i don't reply
 <br> ⛔ = AFK, same as above ^
