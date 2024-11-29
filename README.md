@@ -22,6 +22,14 @@
 <br> <a href="https://tboydin.neocities.org/graphics">![wyzard](https://www.gifs-paradise.com/animations/animated-gifs-wizards-01.gif)</a> <- click here to see my graphic hoarde or click here to see my strawpage -> <a href="https://tboydin.straw.page/">![strawpage](https://liedown1.neocities.org/stamps/trans-shark1.gif)</a>
 <br>
 
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2272019d-3dd1-4e0c-a09e-f0b03c52c568/d1ek0v1-b2718b40-8214-46b4-9234-c0ea614a2e45.jpg/v1/fill/w_99,h_56,q_75,strp/one_piece_sanji_stamp_by_erjanks_d1ek0v1-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8yMjcyMDE5ZC0zZGQxLTRlMGMtYTA5ZS1mMGIwM2M1MmM1NjhcL2QxZWswdjEtYjI3MThiNDAtODIxNC00NmI0LTkyMzQtYzBlYTYxNGEyZTQ1LmpwZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.wXx9reMF3BZ4THN2MvNoZhmY6gmIUZQ_5rjIjFkgEj4"/>
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fe867221-6e72-44b8-a17a-e76d29f47c9a/d1dscof-3db1da02-44f2-41d9-91c5-4e9f027f846f.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZlODY3MjIxLTZlNzItNDRiOC1hMTdhLWU3NmQyOWY0N2M5YVwvZDFkc2NvZi0zZGIxZGEwMi00NGYyLTQxZDktOTFjNS00ZTlmMDI3Zjg0NmYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9Oelw69m-aEY584VhxPqtkK3yGvQ2p9bRi14pwwpWf4"/>
+<img src="https://64.media.tumblr.com/c1278b3696e1d5dc70f101afd235992f/19a8f7934d4ff7d4-9b/s100x200/8adb690007613ddecc6fa9971850890c9fa3537f.gifv"/>
+<img src="https://petericklover.carrd.co/assets/images/image05.png?v=79ac9d03"/>
+<img src="https://64.media.tumblr.com/f9858f504a4103b755007c942647b2ed/60c5ad8adf4aa63e-96/s100x200/76aa0edf1278f492198cd0b424b33a991a28d167.pnj"/>
+<img src="https://64.media.tumblr.com/3f017d5985cb869385a0ba8ee2448018/509dca664f2eb5e4-71/s100x200/a96931e62e8e96bd4217ec86e9bd625d43e7fabe.pnj"/>
+<img src="https://64.media.tumblr.com/f6b4fc8818461079b524fea70ec9f761/087f7b32db4aa7d3-ba/s100x200/732f4c10a596f93f0c7b2af6d5e7c589e4a2d65c.gifv"/>
+<img src="https://64.media.tumblr.com/b5ee5dda177860614254fc6f6e0af2e4/accc52aacf9953cd-ed/s100x200/3dc9fbcf0d8fa626671476d243e2d37c51805c15.gifv"/>
 
 <br> <a href="https://youtu.be/QXmpKI7GtQU?si=-aHQNLlzaUxnRnx6"/>![the curse](https://64.media.tumblr.com/a45f54486f55cfcf7ed9a81d1f392624/bf7ac84fc7adc8b2-9a/s500x750/c061b7e63aa98d4995ef52428a7b11aeb9adb9cf.pnj)</a>
 </div>
