@@ -6,7 +6,7 @@
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0a5f7df0-27c4-484c-b9f1-92e3d31405de/d2psch5-7502baa3-2c9c-4bc0-a7b2-f5cd258fa094.png/v1/fill/w_99,h_56/cyclops_douchebag_stamp_by_shortified_d2psch5-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8wYTVmN2RmMC0yN2M0LTQ4NGMtYjlmMS05MmUzZDMxNDA1ZGVcL2QycHNjaDUtNzUwMmJhYTMtMmM5Yy00YmMwLWE3YjItZjVjZDI1OGZhMDk0LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.87EnW9a-9Go-N-1hbZS_nWchBqhr8_p1TCmq-2DnlR0"/>
   <img src="https://64.media.tumblr.com/de4e776e663cf61db487964e24e3338f/bb8f3fc4a236f7ac-48/s100x200/a7d77d483e238538e59182f22dea8502305324c7.gifv"/>
   <img src="https://gifcity.carrd.co/assets/images/gallery51/4ec70734.gif?v=ef10e8f3"/>
-  <img src="https://user-images.githubusercontent.com/126313739/257608003-8f865a33-950b-4aa2-a7db-c3155f544111.gif"/>
+  <img src="https://64.media.tumblr.com/7d1f41db123fca79b51117d7c763b5ca/75e09c262ea286b7-1a/s100x200/29f4d3eb2b3bdf95bd30b3f9a804df9f4295e09f.pnj"/>
   <img src="https://i.postimg.cc/wBGjqh9g/f9WMldG.gif"/>
 
 <br>🌙 = offtab, just whisper me if i don't reply
@@ -22,7 +22,7 @@
 <br> <a href="https://tboydin.neocities.org/graphics">![wyzard](https://www.gifs-paradise.com/animations/animated-gifs-wizards-01.gif)</a> <- click here to see my graphic hoarde or click here to see my strawpage -> <a href="https://tboydin.straw.page/">![strawpage](https://liedown1.neocities.org/stamps/trans-shark1.gif)</a>
 <br>
 
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2272019d-3dd1-4e0c-a09e-f0b03c52c568/d1ek0v1-b2718b40-8214-46b4-9234-c0ea614a2e45.jpg/v1/fill/w_99,h_56,q_75,strp/one_piece_sanji_stamp_by_erjanks_d1ek0v1-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8yMjcyMDE5ZC0zZGQxLTRlMGMtYTA5ZS1mMGIwM2M1MmM1NjhcL2QxZWswdjEtYjI3MThiNDAtODIxNC00NmI0LTkyMzQtYzBlYTYxNGEyZTQ1LmpwZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.wXx9reMF3BZ4THN2MvNoZhmY6gmIUZQ_5rjIjFkgEj4"/>
+<img src="https://64.media.tumblr.com/9d4fdc50e6db4a04d6ccaa59cb24d63a/4d9194773d148c78-cf/s100x200/47b244454c611053c07a2b91d6ac15375bb2d620.gifv"/>
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fe867221-6e72-44b8-a17a-e76d29f47c9a/d1dscof-3db1da02-44f2-41d9-91c5-4e9f027f846f.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZlODY3MjIxLTZlNzItNDRiOC1hMTdhLWU3NmQyOWY0N2M5YVwvZDFkc2NvZi0zZGIxZGEwMi00NGYyLTQxZDktOTFjNS00ZTlmMDI3Zjg0NmYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9Oelw69m-aEY584VhxPqtkK3yGvQ2p9bRi14pwwpWf4"/>
 <img src="https://64.media.tumblr.com/c1278b3696e1d5dc70f101afd235992f/19a8f7934d4ff7d4-9b/s100x200/8adb690007613ddecc6fa9971850890c9fa3537f.gifv"/>
 <img src="https://petericklover.carrd.co/assets/images/image05.png?v=79ac9d03"/>
