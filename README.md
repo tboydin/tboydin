@@ -32,4 +32,5 @@
 <img src="https://64.media.tumblr.com/b5ee5dda177860614254fc6f6e0af2e4/accc52aacf9953cd-ed/s100x200/3dc9fbcf0d8fa626671476d243e2d37c51805c15.gifv"/>
 
 <br> <a href="https://youtu.be/QXmpKI7GtQU?si=-aHQNLlzaUxnRnx6"/>![the curse](https://64.media.tumblr.com/a45f54486f55cfcf7ed9a81d1f392624/bf7ac84fc7adc8b2-9a/s500x750/c061b7e63aa98d4995ef52428a7b11aeb9adb9cf.pnj)</a>
+<br>![explodwe](https://64.media.tumblr.com/f47d7b6130d759e0ffda251f1a0b1de5/1d55872dd145ede5-e0/s250x400/e430944e0f11e0a8526042ca2226c0a58232200f.gifv)
 </div>
