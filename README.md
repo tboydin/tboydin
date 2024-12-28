@@ -29,7 +29,7 @@
 <img src="https://64.media.tumblr.com/f9858f504a4103b755007c942647b2ed/60c5ad8adf4aa63e-96/s100x200/76aa0edf1278f492198cd0b424b33a991a28d167.pnj"/>
 <img src="https://64.media.tumblr.com/3f017d5985cb869385a0ba8ee2448018/509dca664f2eb5e4-71/s100x200/a96931e62e8e96bd4217ec86e9bd625d43e7fabe.pnj"/>
 <img src="https://64.media.tumblr.com/f6b4fc8818461079b524fea70ec9f761/087f7b32db4aa7d3-ba/s100x200/732f4c10a596f93f0c7b2af6d5e7c589e4a2d65c.gifv"/>
-<img src="https://64.media.tumblr.com/b5ee5dda177860614254fc6f6e0af2e4/accc52aacf9953cd-ed/s100x200/3dc9fbcf0d8fa626671476d243e2d37c51805c15.gifv"/>
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e293e7f-7568-4b09-9f0f-9734668b9558/dceaf3u-8c061ca6-43a7-41b8-9751-2c109d8fc9a6.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlMjkzZTdmLTc1NjgtNGIwOS05ZjBmLTk3MzQ2NjhiOTU1OFwvZGNlYWYzdS04YzA2MWNhNi00M2E3LTQxYjgtOTc1MS0yYzEwOWQ4ZmM5YTYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.pVkbtLzVxA4KSrmRtOzUKT90Dqb2BmunaFGDnauGux4"/>
 
 <br>![explodwe](https://64.media.tumblr.com/f47d7b6130d759e0ffda251f1a0b1de5/1d55872dd145ede5-e0/s250x400/e430944e0f11e0a8526042ca2226c0a58232200f.gifv)
 <br> <a href="https://youtu.be/QXmpKI7GtQU?si=-aHQNLlzaUxnRnx6"/>![the curse](https://64.media.tumblr.com/a45f54486f55cfcf7ed9a81d1f392624/bf7ac84fc7adc8b2-9a/s500x750/c061b7e63aa98d4995ef52428a7b11aeb9adb9cf.pnj)</a>
