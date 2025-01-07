@@ -1,6 +1,8 @@
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/796e1359c4611653b646248e93556831/f1dbe56fe71069c0-80/s250x400/6c5f7ffb46dc05cadf9d61e398cb0d714dab88ee.gifv"/>
+ 
+  ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=73682f)
+  <br><img src="https://64.media.tumblr.com/796e1359c4611653b646248e93556831/f1dbe56fe71069c0-80/s250x400/6c5f7ffb46dc05cadf9d61e398cb0d714dab88ee.gifv"/>
   <img src="https://64.media.tumblr.com/92063a98215bae24fa4043a4932dd6bb/bbb680b5efce7e07-2b/s100x200/db90e35284e9342641c896af3113984ed4b44c87.gifv"/>
   <img src="https://64.media.tumblr.com/8e5d28539897e703c65c3408cbc92fb6/2a9d1e61df91f5df-bd/s100x200/3f21843699c1b8034336a1c2ae982e668bb2602b.gifv"/>
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0a5f7df0-27c4-484c-b9f1-92e3d31405de/d2psch5-7502baa3-2c9c-4bc0-a7b2-f5cd258fa094.png/v1/fill/w_99,h_56/cyclops_douchebag_stamp_by_shortified_d2psch5-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8wYTVmN2RmMC0yN2M0LTQ4NGMtYjlmMS05MmUzZDMxNDA1ZGVcL2QycHNjaDUtNzUwMmJhYTMtMmM5Yy00YmMwLWE3YjItZjVjZDI1OGZhMDk0LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.87EnW9a-9Go-N-1hbZS_nWchBqhr8_p1TCmq-2DnlR0"/>
