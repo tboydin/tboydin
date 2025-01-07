@@ -1,7 +1,7 @@
 
 <div align="center">
  
-  ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=73682f)
+  ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=003366)
   <br><img src="https://64.media.tumblr.com/796e1359c4611653b646248e93556831/f1dbe56fe71069c0-80/s250x400/6c5f7ffb46dc05cadf9d61e398cb0d714dab88ee.gifv"/>
   <img src="https://64.media.tumblr.com/92063a98215bae24fa4043a4932dd6bb/bbb680b5efce7e07-2b/s100x200/db90e35284e9342641c896af3113984ed4b44c87.gifv"/>
   <img src="https://64.media.tumblr.com/8e5d28539897e703c65c3408cbc92fb6/2a9d1e61df91f5df-bd/s100x200/3f21843699c1b8034336a1c2ae982e668bb2602b.gifv"/>
