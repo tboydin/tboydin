@@ -10,7 +10,6 @@
   <img src="https://gifcity.carrd.co/assets/images/gallery51/4ec70734.gif?v=ef10e8f3"/>
   <img src="https://64.media.tumblr.com/7d1f41db123fca79b51117d7c763b5ca/75e09c262ea286b7-1a/s100x200/29f4d3eb2b3bdf95bd30b3f9a804df9f4295e09f.pnj"/>
   <img src="https://i.postimg.cc/wBGjqh9g/f9WMldG.gif"/>
-
 <br>🌙 = offtab, just whisper me if i don't reply
 <br> ⛔ = AFK, same as above ^
 <br> ![rolling](https://enchantments.carrd.co/assets/images/gallery19/b73cd2b3.gif?v=c1e97d5d)  DNI: <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal, MINORS on 18+ server, anti dni/dnt (is it so hard to respect ppl ?), roleplayers (just dont try to make me rp with u lol), rcta/ecta, south park, hellaverse (friends r fine), killing stalking fans, fujoshis/ bl/mlm fetishizers ![rolling](https://enchantments.carrd.co/assets/images/gallery19/b73cd2b3.gif?v=c1e97d5d)
