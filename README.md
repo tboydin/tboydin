@@ -13,8 +13,8 @@
 <br>🌙 = offtab, just whisper me if i don't reply
 <br> ⛔ = AFK, same as above ^
 <br> ![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6)  DNI: <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal/zionists, MINORS on 18+ server, anti dni/dnt, south park, hellaverse (friends r fine), killing stalking fans, fujoshis (meaning bl/mlm fetishizers, if ur just a fan of gay ships then 🤷‍♂️)
-<br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) TLDR just dont bug me with intentionally offensive skins but i hide freely
-<br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) please do not cover me (friends r fine)! makes me uncomfortable but feel free to sit with me/my friends if we share fandoms, i'm offtab most of the time so sorry if i ignore u lol,, skins i cuddle with doesn't mean i ship those characters 
+<br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) TLDR just dont bug me with intentionally offensive skins i block/hide freely
+<br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) please don't cover me (friends r fine)! makes me uncomfortable but feel free to sit with me/my friends if we share fandoms, i'm offtab most of the time so sorry if i ignore u lol,, my skins' expressions don't match my mood, please come up and talk to me i swear im nice ! :sob:
 <br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) taking inspo from my skins is chill :P tone tags are appreciated and i dont accept random friend requests 
 <br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) thx for reading :D
 <br> ![arrow](https://gifcity.carrd.co/assets/images/gallery272/3356dfef.gif?v=47652796) click these buttons for cool stuff :3 ![arrow](https://gifcity.carrd.co/assets/images/gallery272/3356dfef.gif?v=47652796)
