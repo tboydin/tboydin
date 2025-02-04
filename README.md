@@ -31,7 +31,7 @@
 <img src="https://64.media.tumblr.com/f6b4fc8818461079b524fea70ec9f761/087f7b32db4aa7d3-ba/s100x200/732f4c10a596f93f0c7b2af6d5e7c589e4a2d65c.gifv"/>
 <img src="https://64.media.tumblr.com/817e9764bed275dbe2c5af74189ac01d/e624c95b8f82c774-9e/s100x200/ff58ac4b4de94fa2d093c3e85c0c84a0f8411ea9.gifv"/>
 
- ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=2E9AFE&style=plastic)
+ ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=9bdbff&style=plastic)
  ![transman](https://pbs.twimg.com/media/GhkLwYSWMAAv0Ta?format=jpg&name=medium)
  ![GieAO4SawAA1exL](https://github.com/user-attachments/assets/a8519362-246f-4431-8836-7ab35bd8ea93)
 
