@@ -55,6 +55,10 @@ STAMP HOARDE GRAAHHH !!!!!
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/84467357-6e98-4a53-b56a-76ee9199b049/dcca4bc-95216ad6-b1c9-43c2-bc7b-7ab5210559c4.png/v1/fill/w_99,h_56/_stamp__domino_by_galaxystamps_dcca4bc-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC84NDQ2NzM1Ny02ZTk4LTRhNTMtYjU2YS03NmVlOTE5OWIwNDlcL2RjY2E0YmMtOTUyMTZhZDYtYjFjOS00M2MyLWJjN2ItN2FiNTIxMDU1OWM0LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.6fUE3Nu3bgNfiwA1b6AvUQtceQgWJ4UJQPv68Dt1veA"/>
 <img src="https://64.media.tumblr.com/8e5d28539897e703c65c3408cbc92fb6/2a9d1e61df91f5df-bd/s100x200/3f21843699c1b8034336a1c2ae982e668bb2602b.gifv"/>
 <img src="https://pixelsafari.neocities.org/stamps/luckystar2.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/snail.png"/>
+<img src="https://64.media.tumblr.com/e8540b03cc566deb36fde6004f9df95c/0c5fd159ba912643-7b/s100x200/6101b93f3003e2ab8c88fb5974a70cf7cc037dbe.gifv">
+<img src="https://64.media.tumblr.com/881a592de0c480db6db3f15bae9e9cd7/fc096b2b9d65a2c7-3d/s100x200/37c90266052ee4999a12f54e8da00f4c6a1c26c5.gifv"/>
+<img src="https://64.media.tumblr.com/52191d3ecbc1d34e8dad21a09cd94553/45b6d52a72f25e05-53/s100x200/cb22deb62f5ca36968ec843107524e487d876426.pnj">
 
  ![transman](https://pbs.twimg.com/media/GhkLwYSWMAAv0Ta?format=jpg&name=medium)
  ![gotohell](https://github.com/user-attachments/assets/a8519362-246f-4431-8836-7ab35bd8ea93)
