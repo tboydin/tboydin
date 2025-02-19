@@ -59,6 +59,14 @@ STAMP HOARDE GRAAHHH !!!!!
 <img src="https://64.media.tumblr.com/e8540b03cc566deb36fde6004f9df95c/0c5fd159ba912643-7b/s100x200/6101b93f3003e2ab8c88fb5974a70cf7cc037dbe.gifv">
 <img src="https://64.media.tumblr.com/881a592de0c480db6db3f15bae9e9cd7/fc096b2b9d65a2c7-3d/s100x200/37c90266052ee4999a12f54e8da00f4c6a1c26c5.gifv"/>
 <img src="https://64.media.tumblr.com/52191d3ecbc1d34e8dad21a09cd94553/45b6d52a72f25e05-53/s100x200/cb22deb62f5ca36968ec843107524e487d876426.pnj">
+<img src="https://64.media.tumblr.com/858732a13d466344b2a34b6993ec9780/a06e0415bb50c9d8-8e/s100x200/af5a00859a24f01176392b0911400b40f7f3d305.gifv"/>
+<img src="https://pixelsafari.neocities.org/stamps/cateeper.gif"/>
+<img src="https://64.media.tumblr.com/8f17959ccbcdb26cccf1bd2263444221/bc99cf7762303f7b-55/s100x200/dee9c1d58b00d16aca412d77d3add757f4b31dd6.gifv"/>
+<img src="https://pixelsafari.neocities.org/stamps/sharks.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/wiggly.png"/>
+<img src="https://64.media.tumblr.com/1d0ea254bfcb110fc798321d8a190b51/695369241b0b852b-8e/s100x200/2dfae08d84b70dada63165c9d52e804ebe80ab75.pnj"/>
+<img src="https://64.media.tumblr.com/3f4a527eee0def50fab6697f37697c92/2a9d1e61df91f5df-e6/s100x200/37788b7a7174a3cfaa8a527d3dd7f25558d21006.pnj"/>
+<img src="https://64.media.tumblr.com/f9858f504a4103b755007c942647b2ed/60c5ad8adf4aa63e-96/s100x200/76aa0edf1278f492198cd0b424b33a991a28d167.pnj"/>
 
  ![transman](https://pbs.twimg.com/media/GhkLwYSWMAAv0Ta?format=jpg&name=medium)
  ![gotohell](https://github.com/user-attachments/assets/a8519362-246f-4431-8836-7ab35bd8ea93)
