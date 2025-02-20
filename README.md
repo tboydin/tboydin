@@ -8,7 +8,7 @@
  ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=9bdbff&style=plastic) 
 <br>🌙 = offtab, whisper me if i don't reply
 <br> ⛔ = AFK, same as above
-<br> ![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal/zionists, MINORS on 18+ server, anti dni/dnt, south park, hellaverse (friends r fine), killing stalking fans, fujoshis (meaning bl/mlm fetishizers, if ur just a fan of gay ships then 🤷‍♂️)
+<br> ![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal/zionists, MINORS on 18+ server, anti dni/dnt, south park, hellaverse (friends r fine), killing stalking fans, fujoshis (meaning bl/mlm fetishizers, if ur just a fan of gay ships then 🤷‍♂️), tony stark enthusiasts/stony shippers (/hj)
 <br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) TLDR just dont bug me with intentionally offensive skins i block/hide freely
 <br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) please don't cover me (friends r fine)! makes me uncomfortable but feel free to sit with me/my friends if we share fandoms, i'm offtab most of the time so sorry if i ignore u lol,, my skins' expressions don't match my mood, i swear im nice ! :sob:
 <br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) taking inspo from my skins is chill :P tone tags are appreciated and i dont accept random friend requests 
