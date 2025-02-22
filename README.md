@@ -1,12 +1,14 @@
 
 <div align="center">
 
+ ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=9bdbff&style=plastic) 
+ 
  <div align="center">
 <video src= https://github.com/user-attachments/assets/d71ec205-f460-460a-922b-fada8b5a56fb />
 </div>
- 
- ![](https://komarev.com/ghpvc/?username=tboydin&label=goobers+++&color=9bdbff&style=plastic) 
-<br>🌙 = offtab, whisper me if i don't reply
+ <img src="https://64.media.tumblr.com/fab61bb84c7278903fa41b00e6dd2af7/3333b3b12d33a859-67/s250x400/1f7ca0b5db6590c7915ce518fbf0d439e2c917eb.gifv"/>
+
+ <br>🌙 = offtab, whisper me if i don't reply
 <br> ⛔ = AFK, same as above
 <br> ![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) <a href="https://dnicriteria.carrd.co">basic dni</a>, pro-isreal/zionists, MINORS on 18+ server, anti dni/dnt, south park, hellaverse (friends r fine), killing stalking fans, fujoshis (meaning bl/mlm fetishizers, if ur just a fan of gay ships then 🤷‍♂️), tony stark enthusiasts/stony shippers (/hj)
 <br>![star](https://gifcity.carrd.co/assets/images/gallery282/06583020.gif?v=238ae5e6) TLDR just dont bug me with intentionally offensive skins i block/hide freely
