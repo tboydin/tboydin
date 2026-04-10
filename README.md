@@ -78,7 +78,6 @@ STAMP HOARDE GRAAHHH !!!!!
 <img src="https://64.media.tumblr.com/3f4a527eee0def50fab6697f37697c92/2a9d1e61df91f5df-e6/s100x200/37788b7a7174a3cfaa8a527d3dd7f25558d21006.pnj"/>
 <img src="https://64.media.tumblr.com/f9858f504a4103b755007c942647b2ed/60c5ad8adf4aa63e-96/s100x200/76aa0edf1278f492198cd0b424b33a991a28d167.pnj"/>
 
- ![transman](https://pbs.twimg.com/media/GhkLwYSWMAAv0Ta?format=jpg&name=medium)
  ![gotohell](https://github.com/user-attachments/assets/a8519362-246f-4431-8836-7ab35bd8ea93)
 
 </div>
